@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PemaWD
 - 👀 I’m interested in coding.
-- 🌱 I’m currently learning AWT,MAD and Python
+- 🌱 I’m currently learning about life...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Pemadwangyal@gmail.com
 
